@@ -1,5 +1,5 @@
 # jebac-pwsz
 hehe
 
-## i co tam, zrobisz... ? 
+## i co tam, zrobisz... ? gunwoo
 kolos
